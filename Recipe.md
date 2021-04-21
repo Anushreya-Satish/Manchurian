@@ -1,0 +1,12 @@
+                                      Method:
+Take all the finely chopped vegetables in a bowl. Then add the dry ingredients (cornflour, white flour, black pepper, salt) in it. Mix and gather the whole mixture together.Then kind of mix and knead, so that the veggies leave the water and you get a dough like mixture. But don't knead like that of a chapatti dough. Gluten strands can form, that will give a dense chewy texture in the fried veggie balls. So just mix very well and press so that the veggies release their juices. Then take a small portion of the mixture in your hand. Press and roll it in your palm and make a round veggie ball. Make all veggie balls in this way. Heat oil for deep frying in a pan. Add a small piece of veggie ball in the hot oil, if the balls does not stick or settle down at the bottom of the pan, but comes up steadily then oil is ready for frying these veggie balls. If the balls break then some more binding agents are required, for it you can add 2-3 tsp of some more white flour.Gently place the balls in the hot oil. The oil should be medium hot. When cooked from one side, turn the balls with a slotted spoon. Fry the balls till crisp and golden. Place the balls in a kitchen paper towel.
+
+                                Making the sauce:
+In a small bowl take the three sauces. Mix the sauce very well and keep aside. In another small bowl take 1 tbsp corn flour and 2 tbsp of water. Mix very well and keep 
+aside. Heat 1 tbsp oil in a pan. Add 4tbsp chopped green onion, 1tbsp finely chopped garlic, green chillies and finely chopped capscicum. Stir fry in medium till the onion turns translucsent then add the mix sauce. Add 2 cups water. let the mixture come to a boil. Mix the corrn flour paste again in the bowl and then add in the pan. As soon as you add corn flour paste. Mix very well so that there are no lumps. Continue to stir and mix when the sauce is being cooked. Simmer till the manchurian sauce thickens and you see a glaze in it. Cooking sauce takes about 3-4 mins on a medium flame. If the sauce is to thick then you add some water. If it is to thin then you can add some corn flour . When the manchurian gravy thickens add 1/2 tsp black pepper powder. Season with bit of salt to taste. Add 1/4-1/2 tsp sugar or more if required. Mix very well. Then add the fried veggie balls and 1 tsp vinegar in it. Then stir and coat fried veggie balls in the gravy. Switch off the flame and add some green onion in it.
+                            
+                            Your delicious meal is ready!
+
+
+
+
